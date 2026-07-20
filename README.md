@@ -13,7 +13,7 @@
 - i'm ok with rps, but i'm not comfy with aged up/down, preg or anything similar (ships are mostly ok)
 - on a similar note, if you wanna rp, please tell me first, i might get confused !!
 - please don't steal or post pictures of me on pinterest/other similar platforms
-- ask for inspo!!
+- ask for inspo!! i'll only allow slight inspo tho
 - i'm open to song recommendations! > <
   
 
