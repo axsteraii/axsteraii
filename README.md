@@ -6,6 +6,9 @@
 
 
 ˚₊ · »-☆→ [𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖](https://starstruckarcher.straw.page)
+- 
+hallo hallo, pretty please read my strawpage!!
 
-𝕪𝕠 𝕨𝕙𝕒𝕥𝕥𝕦𝕡 𝕡𝕝𝕤 𝕣𝕖𝕒𝕕 𝕞𝕪 𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖!!
+feel free to int! i don't bite > < if i'm not visibly active, w2i
 
+uhh follow me if you wanna im a chill guy please 🙏
