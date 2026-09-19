@@ -9,6 +9,8 @@
 - 
 hallo hallo, pretty please read my strawpage!!
 
+basic dni ; T.R.A.S.H, qw3l supporters, ai users
+
 monolingual : EN : feel free to int! i don't bite > < if i'm not visibly active, w2i
 
 uhh follow me if you wanna im a chill guy please 🙏 GUYS SIGN MY ATA AOURGH /hj
