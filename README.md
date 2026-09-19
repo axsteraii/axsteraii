@@ -9,7 +9,7 @@
 - 
 hallo hallo, pretty please read my strawpage!!
 
-basic dni ; T.R.A.S.H, qw3l supporters, ai users
+basic dni ; T.R.A.S.H, qw3l supporters, nsfw, ai users, <12
 
 monolingual : EN : feel free to int! i don't bite > < if i'm not visibly active, w2i
 
