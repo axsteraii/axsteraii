@@ -13,4 +13,4 @@ basic dni ; T.R.A.S.H, qw3l supporters, nsfw, ai users, <12
 
 monolingual : EN : feel free to int! i don't bite > < if i'm not visibly active, w2i
 
-uhh follow me if you wanna im a chill guy please 🙏 GUYS SIGN MY ATA AOURGH /hj
+uhh follow me if you wanna im a chill guy please 🙏 sign my ata ^_^
