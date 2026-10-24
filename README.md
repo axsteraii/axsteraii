@@ -1,13 +1,15 @@
 <p align="center">
-    <img width="850" height="449" alt="image" src="https://github.com/user-attachments/assets/eef50277-9caf-44c3-b875-cc3f3bb6386e" />
+    <img width="718" height="240" alt="header" src="https://github.com/user-attachments/assets/7d1aaaaa-520d-4ef3-bd3b-877efbadd45f" />
+
+
 
 <p align="center">
 ✩‧₊˚༺☆༻*✩‧₊˚
 
 
 ˚₊ · »-☆→ [𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖](https://starstruckarcher.straw.page)
-- 
-hallo hallo, pretty please read my strawpage!!
+
+hihi, pretty please read my strawpage!!
 
 basic dni ; T.R.A.S.H, qw3l supporters, nsfw, ai users, <12
 
