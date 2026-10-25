@@ -7,18 +7,18 @@
 ✩‧₊˚༺☆༻*✩‧₊˚
 
 
-𖦹🗒.'˚ ༘ ೀ⋆｡˚🫧,
+🍨𖦹.'˚ ༘ ೀ⋆｡˚🫧,
 
 ˚₊ · »-☆→ [𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖](https://starstruckarcher.straw.page)
 
-hihi, pretty please read my strawpage!!
+➤ hihi, pretty please read my strawpage!!
 
-basic dni ; T.R.A.S.H, qw3l supporters, nsfw, ai users, <12
+➤ basic dni ; T.R.A.S.H, qw3l supporters, nsfw, ai users, <12
 
-20+ iwec
+➤ 20+ iwec
 
-monolingual : EN : feel free to int! i don't bite, though i'm mostly nv. if i'm not visibly active, w2i
+➤ monolingual : EN : feel free to int! i don't bite, though i'm mostly nv. if i'm not visibly active, w2i
 
-uhh follow me if you wanna im a chill guy please 🙏 sign my ata ^_^
+➤ uhh follow me if you wanna im a chill guy please 🙏 sign my ata ^_^
 
  ˚｡⋅˚₊‧ ୨୧ ‧₊˚ ⋅
