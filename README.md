@@ -9,7 +9,7 @@
 
 🍨𖦹.'˚ ༘ ೀ⋆｡˚🫧,
 
-˚₊ · »-☆→ [𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖](https://starstruckarcher.straw.page)
+˚₊ · »-☆→ [𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖](https://axsteraii.straw.page)
 
 ➤ hihi, pretty please read my strawpage!!
 
