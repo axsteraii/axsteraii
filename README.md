@@ -17,7 +17,7 @@
 
 ➤ 20+ iwec
 
-➤ monolingual : EN : feel free to int! i don't bite, though i'm mostly nv. if i'm not visibly active, w2i
+➤ w2i if i'm not visibly active, i am mostly afk :]
 
 ➤ uhh follow me if you wanna im a chill guy please 🙏 sign my ata ^_^
 
