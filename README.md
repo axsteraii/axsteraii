@@ -19,6 +19,6 @@
 
 ➤ w2i if i'm not visibly active, i am mostly afk :]
 
-➤ uhh follow me if you wanna im a chill guy please 🙏 sign my ata ^_^
+➤ okidokidoki like and subscribee !!
 
  ˚｡⋅˚₊‧ ୨୧ ‧₊˚ ⋅
