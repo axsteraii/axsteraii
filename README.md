@@ -28,3 +28,7 @@ ${\textsf{\color{#f7c4cf}𖦹 ׂ 𓈒 🥞  ⋆ ۪ "𝕔𝕒𝕝𝕝 𝕞𝕖 �
 ✩‧₊˚༺☆༻*✩‧₊˚
 
 »-☆→ [𝕞𝕠𝕣𝕖 𝕚𝕟𝕗𝕠](https://axsteraii.straw.page)
+
+<p align="center">
+<img width="1200" height="368" alt="Untitled design" src="https://github.com/user-attachments/assets/7709d73d-ac78-4b9b-b938-ce5bb92ddb15" />
+
