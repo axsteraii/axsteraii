@@ -11,7 +11,7 @@
 <p align="center">
 🍨𖦹.'˚ ༘ ೀ⋆｡˚🫧,
 <p align="center">
-➤ hihi, pretty please read my strawpage!!
+➤ hihi, pretty please read my strawpage!! 😗😙
 <p align="center">
 ➤ basic dni ; T.R.A.S.H, qw3l supporters, nsfw, ai users, <12
 <p align="center">
