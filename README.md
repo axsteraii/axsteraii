@@ -16,7 +16,7 @@ ${\textsf{\color{#f7c4cf}𖦹 ׂ 𓈒 🥞  ⋆ ۪ "𝕔𝕒𝕝𝕝 𝕞𝕖 �
 <p align="center">
 ➤ don't spam friend req!! i will not accept unless we int often
 <p align="center">
-➤ 20+ iwec
+➤ 20+ iwecuf
 <p align="center">
 ➤ w2i if i'm not visibly active, i am mostly afk :]
 <p align="center">
