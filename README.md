@@ -14,7 +14,7 @@ ${\textsf{\color{#f7c4cf}𖦹 ׂ 𓈒 🥞  ⋆ ۪ "𝕔𝕒𝕝𝕝 𝕞𝕖 �
 <p align="center">
 ➤ basic dni ; T.R.A.S.H, qw3l supporters, nsfw, ai users, <12
 <p align="center">
-➤ don't spam friend req!! i will not accept
+➤ don't spam friend req!! i will not accept unless we int often
 <p align="center">
 ➤ 20+ iwec
 <p align="center">
