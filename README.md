@@ -20,7 +20,7 @@ ${\textsf{\color{#f7c4cf}𖦹 ׂ 𓈒 🥞  ⋆ ۪ "𝕔𝕒𝕝𝕝 𝕞𝕖 �
 <p align="center">
 ➤ w2i if i'm not visibly active, i am mostly afk :]
 <p align="center">
-➤ okidokidoki like and subscribee !!
+➤ okidokidoki like and subscribee !! 😋😋
 <p align="center">
  ˚｡⋅˚₊‧ ୨୧ ‧₊˚ ⋅
 
