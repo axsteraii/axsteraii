@@ -1,5 +1,5 @@
 <h2 p align="center">
-${\textsf{\color{#f7c4cf}𖦹 ׂ 𓈒 🥞  ⋆ ۪ "𝕔𝕒𝕝𝕝 𝕞𝕖 𝕔𝕒𝕪-𝕔𝕒𝕪" !! 🍨｡𖦹°‧ ˚₊ ·}}$
+${\textsf{\color{#f7c4cf}𖦹 ׂ 𓈒 🥞  ⋆ ۪ 𝕚 𝕒𝕞 𝕙𝕖, 𝕒𝕟𝕕 𝕨𝕖 𝕒𝕣𝕖 𝕥𝕙𝕖𝕪. 𝕤𝕡𝕝𝕚𝕥 𝕔𝕒𝕣𝕕! 🍨｡𖦹°‧ ˚₊ ·}}$
 
 <p align="center">
     <img width="718" height="240" alt="header" src="https://github.com/user-attachments/assets/7d1aaaaa-520d-4ef3-bd3b-877efbadd45f" />
